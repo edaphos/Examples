@@ -1,4 +1,4 @@
-# Examples
+# Overview
 Repository for PRODUCTS representing skills, expertise and experiences
 
 I possess a master of science/agriculture degree in soil science with secondary emphasis in crop ecology from the University of Minnesota (1995), and bachelor’s degree in agronomy and pest management from Iowa State University (1982).  My career interests and expertise center on soil health and include cropping systems agronomy, plant nutrition, soil and water conservation and water quality.  My expertise with soil science and agronomy spans hill-side and subsistence farming in Central America and Africa to large-scale farming systems in the United States, Canada and Argentina.  I have over thirty years of combined experience in production agriculture, private industry, extension, research, and international agriculture.  This includes experience with irrigated and rain-fed cereal and pulse grains, maize, sorghum, rice, soybean, sunflower and potato, and various horticultural crops including sweet peas, sweet corn, carnations, pecans, citrus, cucurbits, pepper and tomato.  
